@@ -1,4 +1,4 @@
-#  
+#  Experience dandy's world like never before with ultimate dandy's world Scripts, the #1 Script. Includes auto-collect and fly for unbeatable
 
 
 
